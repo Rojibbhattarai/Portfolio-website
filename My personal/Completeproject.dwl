@@ -1,0 +1,3 @@
+ACER
+LAPTOP-LPE99HEE 
+Friday, June 30, 2023  11:00:05 AM
